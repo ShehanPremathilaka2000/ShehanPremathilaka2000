@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning university of Moratuwa
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me Sisira Sewana, Periyakadunelawa, Ibbagamuwa, Srilanka
+- 📫 How to reach me harshanashehan52@gmail.com
 
 <!---
 ShehanPremathilaka2000/ShehanPremathilaka2000 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
